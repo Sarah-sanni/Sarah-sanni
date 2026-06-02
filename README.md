@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sarah-sanni
-- 👀 I’m interested in mobile apps
+- 👀 I’m interested in robotics
 - 🌱 I’m currently learning other interesting language
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me +2348132333037
